@@ -1,1 +1,1 @@
-A uni student interested in web and mobile development
+A university student interested in web and mobile development
