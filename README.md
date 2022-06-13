@@ -1,1 +1,1 @@
-Web Development | Mobile Application Development
+Web | Mobile Developer
