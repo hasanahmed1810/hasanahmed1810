@@ -1,1 +1,1 @@
-Web | Mobile | Blockchain Developer
+Software Developer
